@@ -1,2 +1,2 @@
 # ghastly
-just ghastly.
+Muuuuito quente!
